@@ -1,4 +1,4 @@
-### yes daddy
+### THIS IS MY REPOSITORY
 <!--🤔 I’m looking for help with hw0
 **gzog23/gzog23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
